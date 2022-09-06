@@ -1,0 +1,1 @@
+![FakultasMIpa](https://ugm.ac.id/galleries/static_image/education/fak-mipa1.jpg)
